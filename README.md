@@ -1,16 +1,13 @@
-## Hi there 👋
+Looking for a working Daman Game invite code? Use invite code 7213414967807 during registration to instantly unlock a Rs. 2000 sign-up bonus. This gives you free playing capital to test color and number predictions without risking your own money upfront.
 
-<!--
-**damangameinvitecode1/damangameinvitecode1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+How to Claim Your Bonus:
 
-Here are some ideas to get you started:
+1. Download the official Daman Game app and open the registration page.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+2. Enter the referral code 7213414967807 in the invite code box.
+
+3. Complete the mobile number verification via OTP.
+
+4. The Rs. 2000 bonus will be credited instantly to your wallet.
+
+Note: Make sure to enter the correct code during sign-up to ensure the bonus is credited successfully.
